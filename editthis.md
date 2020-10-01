@@ -1,1 +1,2 @@
 HOW WAS YOUR DAY ?
+GOOD
