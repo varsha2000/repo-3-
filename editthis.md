@@ -1,2 +1,2 @@
 HOW WAS YOUR DAY ?
-GOOD
+Always Good.
